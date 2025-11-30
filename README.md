@@ -22,6 +22,27 @@ Benefits: Improved Networking Opportunities, Job or Collaboration Offers, Centra
 
 
 OUTPUT:
+<img width="1920" height="1020" alt="Image" src="https://github.com/user-attachments/assets/a19af9bf-0cd6-4873-ad85-98f6696d80a5" />
+
+
+
+
+<img width="1920" height="1080" alt="Image" src="https://github.com/user-attachments/assets/c0a80ffd-6738-4790-9564-3122328594e0" />
+
+
+
+
+
+
+
+<img width="1920" height="1080" alt="Image" src="https://github.com/user-attachments/assets/0359007e-5d63-44f8-a1e7-7b1a9a947869" />
+
+
+
+
+
+
+<img width="1920" height="1080" alt="Image" src="https://github.com/user-attachments/assets/d900d89b-fa22-455a-be71-b2b49dbba8f8" />
 
 
 
